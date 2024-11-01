@@ -1,0 +1,2 @@
+# amaliy-mashg-ulot
+yoq
